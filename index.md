@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="singles-ii-boogaloo.png" alt="Singles II Boogaloo cover" width="600">
+</p>
+
 # Singles Boogaloo ⚡ 😈
 
 Hey hey you single lonely fucks and happily cuffed cucks - it's time for the annual single mingles event - except it's on a scale potentially beyond my control
