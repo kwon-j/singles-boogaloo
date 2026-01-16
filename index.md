@@ -1,5 +1,4 @@
-# Annual Single Mingles Event  
-### or: a social experiment potentially beyond my control
+# Singles Boogaloo ⚡ 😈
 
 Hey hey you single lonely fucks and happily cuffed cucks - it's time for the annual single mingles event - except it's on a scale potentially beyond my control
 
@@ -24,19 +23,18 @@ Everyone will go on their date simultaneously -- on the 23rd Jan -- everyone wil
 (for non-oxford uni ppl - it's a dinner in the fancy dining hall in Keble college  
 **dresscode:** smart-casual)
 
-Then everyone will go to the Oxford retreat after for a boogie  
-(or another event (TBC) to shake ass)
+Then everyone will go to the Oxford retreat after for a boogie (or another event (TBC) to shake ass)
 
 ---
 
 ## **Non-singles / couples / throuples:**
 
 You're here for moral support / you can help find potential dates for when the singles can't find dates for the person they're assigned - please do come and bring your partner, coz I also just wanna see u!  
-(I think most people in this chat are actually in very beautiful relationships <3)
+(I think most people in this chat are actually in very beautiful relationships 🫶 🤮 )
 
 **You don't need to partake in the singles mingling - you can just come and join for formal / any other part of the night!!**
 
-*But if you want to partake in the singles dating part -- yeah you need to come for formal*
+*But if you want to partake in the singles dating part -- yeah you need to come to formal*
 
 ---
 
@@ -52,7 +50,7 @@ So ya'll have **5 days** to find someone.
 **FILL IN THE GOOGLE FORM ASAP IF YOU WANNA JOIN --  
 I'M SETTING A HARD DEADLINE FOR SUNDAY 18TH JAN - NOON MIDDAY**
 
-(i'll send the google form tmr because i wanna sleep rn - but people be asking too many qs)
+(i'll send the google form tmr because i wanna sleep rn - but people be desperate for info so sending this now)
 
 There's literally 2 main questions:
 
@@ -63,7 +61,7 @@ There's literally 2 main questions:
 
 ## **Details on the actual night**
 
-1. Last year noone had a good time on their dates -- and I want everyone to mingle anyway for even friendship sake -- so even if you're a couple - after every course of the dinner everyone is going to have to switch places w someone
+1. Last year noone had a good time on their dates -- and I want everyone to mingle anyway for even friendship sake -- so even if you're a not single - after each course of the dinner everyone will have to switch places w someone!! 😈
 2. Formal is around £15 (for a 3 course meal) -- and £10 for a bottle of wine but if you're sneaky you can sneak in your own wine  
    (also keble wine is shit)
 3. Formal is smart casual and starts at **7PM** so the night will begin at **6:30PM** - late.
