@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="singles-ii-boogaloo.png" alt="Singles II Boogaloo cover" width="600">
+  <img src="singles_boogaloo.png" alt="Singles II Boogaloo cover" width="600">
 </p>
 
 # Singles Boogaloo ⚡ 😈
